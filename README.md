@@ -1,0 +1,1 @@
+# ginzex11.github.io
